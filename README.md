@@ -90,7 +90,15 @@ Project :
 
 งานอดิเรก :
 - คุยกับอาจารย์เอก
-  
+
+My roommate
+
+<img width="861" height="868" alt="Screenshot (144)" src="https://github.com/user-attachments/assets/472db845-aeae-4d75-928c-5c9e9af3789e" />
+
+Teteh ( Teethat Samdaengpai )
+67991012@kmitl.ac.th
+ig : teteh_teethat
+gender : Gayแอ๊บ
 
 
 <!--
