@@ -1,4 +1,16 @@
 ## สวัสดี 你好 こんにちは 안녕하세요 Hola Selamat pagi Xin chào Bonjour Hello Hallo Ciao Привет مرحبًا नमस्ते Olá Hallo Hej Kamusta
+
+![hq720](https://github.com/user-attachments/assets/f1f4d421-d275-4959-90e5-cebfceeab035)
+
+พี่ชาวี รับบทโดย เตเต้คุง
+อารยา รับบทโดย ธีทัต สำแดงภัย
+ชลลี่ รับบทโดย เบลล์จังสาวอนิเมะ
+หมอแมะ รับบทโดย เกย์วินตั้น
+คุณหญิงแม่ รับบทโดย แสตมป์จัง
+คนใช้1 รับบทโดย นังลิลลี่
+ดีดี้ รับบทโดย กีกี้จัง
+คุณหญิงย่า รับบทโดย เฮียเพชร
+คนใช้2 รับบทโดย อีบูม
 <!--
 **Cherbelle-67CE07/Cherbelle-67CE07** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
