@@ -1,4 +1,4 @@
-<img width="806" height="822" alt="Screenshot (137)" src="https://github.com/user-attachments/assets/6d9e3cc8-8ae5-4ea8-8afa-fd8ebcc51978" />## สวัสดี 你好 こんにちは 안녕하세요 Hola Selamat pagi Xin chào Bonjour Hello Hallo Ciao Привет مرحبًا नमस्ते Olá Hallo Hej Kamusta
+## สวัสดี 你好 こんにちは 안녕하세요 Hola Selamat pagi Xin chào Bonjour Hello Hallo Ciao Привет مرحبًا नमस्ते Olá Hallo Hej Kamusta
 
 ![hq720](https://github.com/user-attachments/assets/f1f4d421-d275-4959-90e5-cebfceeab035)
 
