@@ -71,7 +71,9 @@ my Homeroom teacher
 พระขรรค์คทาถ้วนตน
 ๏ ลอยฟ้ามาในเวหน รีบเร่งรี้พล
 มาถึงสมรภูมิชัย ฯ
+![CNX_Chem_14_03_Corresp](https://github.com/user-attachments/assets/9a64f28e-921d-4acb-82d8-df47e0b209e6)
 
+<img width="560" height="675" alt="Screenshot (143)" src="https://github.com/user-attachments/assets/630d5b34-87b0-4db4-ae54-24c211fcdd65" />
 
 
 
