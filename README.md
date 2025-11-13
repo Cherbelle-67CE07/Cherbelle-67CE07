@@ -13,6 +13,13 @@
 🕶️ ไพศาล 🕵️‍♂️ รับบทโดย นังแสตมป์ 💼
 📻 คนพูดวิทยุ 🎙️ รับบทโดย น้องบัว 🐝
 
+
+![th-11134207-7ras8-m1wtdfhs7hfb37](https://github.com/user-attachments/assets/0e9ad218-cb9d-47ff-8d7b-9f363f5810b1)
+
+
+
+
+
 <!--
 **Cherbelle-67CE07/Cherbelle-67CE07** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
