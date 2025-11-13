@@ -1,4 +1,4 @@
-## สวัสดี 你好 こんにちは 안녕하세요 Hola Selamat pagi Xin chào Bonjour Hello Hallo Ciao Привет مرحبًا नमस्ते Olá Hallo Hej Kamusta
+<img width="806" height="822" alt="Screenshot (137)" src="https://github.com/user-attachments/assets/6d9e3cc8-8ae5-4ea8-8afa-fd8ebcc51978" />## สวัสดี 你好 こんにちは 안녕하세요 Hola Selamat pagi Xin chào Bonjour Hello Hallo Ciao Привет مرحبًا नमस्ते Olá Hallo Hej Kamusta
 
 ![hq720](https://github.com/user-attachments/assets/f1f4d421-d275-4959-90e5-cebfceeab035)
 
@@ -25,6 +25,14 @@ Fried chicken (gnarly), partyin' in the Hollywood Hills (uh-huh)
 <img width="240" height="240" alt="main" src="https://github.com/user-attachments/assets/d00516d6-f5e9-44a5-966b-2765ae052954" />
 
 ปุตตะกาโม ละเภ ปุตตัง ธะนะกาโม ละเภ ธะนัง อัตถิกาเย กายญายะ เทวานัง ปิยะตัง สุตตวา อิติปิ โส ภควา ยะมะราชาโน ท้าวเวสสุวัณโณ มะระณัง สุขัง อะระหัง สุคะโต นะโม พุทธายะ
+
+my Homroom teacher
+
+<img width="806" height="822" alt="Screenshot (137)" src="https://github.com/user-attachments/assets/79d8d8d2-4ce1-49c0-8989-a29f96aa64fc" />
+<img width="647" height="704" alt="Screenshot (138)" src="https://github.com/user-attachments/assets/18b735cd-c881-468c-b8cc-679718804770" />
+<img width="673" height="793" alt="Screenshot (139)" src="https://github.com/user-attachments/assets/46b8edce-1363-47e2-a646-594ce70249de" />
+<img width="559" height="569" alt="Screenshot (141)" src="https://github.com/user-attachments/assets/2d9a5aff-1695-4690-8cb9-3ce02216e774" />
+
 
 
 <!--
