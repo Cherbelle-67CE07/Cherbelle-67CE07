@@ -33,6 +33,7 @@ my Homroom teacher
 <img width="673" height="793" alt="Screenshot (139)" src="https://github.com/user-attachments/assets/46b8edce-1363-47e2-a646-594ce70249de" />
 <img width="559" height="569" alt="Screenshot (141)" src="https://github.com/user-attachments/assets/2d9a5aff-1695-4690-8cb9-3ce02216e774" />
 
+<img width="1293" height="266" alt="Screenshot (142)" src="https://github.com/user-attachments/assets/9c3e7bd9-be18-4040-8445-7a3f059dba64" />
 
 
 <!--
