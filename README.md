@@ -34,7 +34,9 @@ my Homeroom teacher
 <img width="559" height="569" alt="Screenshot (141)" src="https://github.com/user-attachments/assets/2d9a5aff-1695-4690-8cb9-3ce02216e774" />
 
 <img width="1293" height="266" alt="Screenshot (142)" src="https://github.com/user-attachments/assets/9c3e7bd9-be18-4040-8445-7a3f059dba64" />
-![1](https://github.com/user-attachments/assets/37ca1559-4cbd-4092-81fe-9d4bb8e2664c)
+
+![1](https://github.com/user-attachments/assets/ca6a71ce-0f0f-4e37-ade9-7852da0aa081)
+
 ๏ อินทรชิตบิดเบือนกายิน เหมือนองค์อมรินทร์
 ทรงคชเอราวัณ
 ๏ ช้างนิมิตฤทธิแรงแข็งขัน เผือกผ่องผิวพรรณ
