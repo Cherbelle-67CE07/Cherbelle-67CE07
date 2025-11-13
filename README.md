@@ -26,7 +26,7 @@ Fried chicken (gnarly), partyin' in the Hollywood Hills (uh-huh)
 
 ปุตตะกาโม ละเภ ปุตตัง ธะนะกาโม ละเภ ธะนัง อัตถิกาเย กายญายะ เทวานัง ปิยะตัง สุตตวา อิติปิ โส ภควา ยะมะราชาโน ท้าวเวสสุวัณโณ มะระณัง สุขัง อะระหัง สุคะโต นะโม พุทธายะ
 
-my Homroom teacher
+my Homeroom teacher
 
 <img width="806" height="822" alt="Screenshot (137)" src="https://github.com/user-attachments/assets/79d8d8d2-4ce1-49c0-8989-a29f96aa64fc" />
 <img width="647" height="704" alt="Screenshot (138)" src="https://github.com/user-attachments/assets/18b735cd-c881-468c-b8cc-679718804770" />
